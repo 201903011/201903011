@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @201903011
 - 👀 I’m interested in developing
-- 🌱 I’m currently learning BTEch(IT) Second Year
+- 🌱 I’m currently learning BTEch(IT) Third Year
 - 📫 How to reach me  ... mail rahulkishorgaikwad@gmail.com
 
 
